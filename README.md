@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Pansorii
-- 👀 I’m interested in video games, fashion, make up, language
+- 👀 I’m interested in video games, fashion, make up, language, cars, robotics
 - 🌱 I’m currently learning everything!
 - 💞️ I’m looking to collaborate on idk yet :P
 - 📫 How to reach me: ariangiepm614@gmail.com
